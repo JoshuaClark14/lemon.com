@@ -8,4 +8,7 @@
 
 ![Screen Shot 2023-11-29 at 4 51 19 pm](https://github.com/JoshuaClark14/lemon.com/assets/152097347/0e32ec43-85bb-4304-a78e-ae7f13873ed6)
 
+![Screen Shot 2023-12-01 at 4 21 12 pm](https://github.com/JoshuaClark14/lemon.com/assets/152097347/45945e5b-faa1-49b3-a910-8996ae6b5793)
+
+
 more stuff coming soon!
