@@ -11,4 +11,4 @@
 ![Screen Shot 2023-12-01 at 4 21 12 pm](https://github.com/JoshuaClark14/lemon.com/assets/152097347/45945e5b-faa1-49b3-a910-8996ae6b5793)
 
 
-more stuff coming soon!
+🔈 more stuff coming soon! 🔈
