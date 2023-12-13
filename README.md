@@ -1,4 +1,4 @@
-# lemon.com
+# 🍋 lemon.com 🍋
 
 ![Screen Shot 2023-11-29 at 4 50 38 pm](https://github.com/JoshuaClark14/lemon.com/assets/152097347/21dfad7c-ac79-4f31-85fa-9197461b68df)
 
